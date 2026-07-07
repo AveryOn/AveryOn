@@ -41,3 +41,7 @@ For projects with a clearly defined scope, I can take a backend from an idea to 
 
 * LinkedIn: https://www.linkedin.com/in/vladislav-everi-a3b0143a5
 * Email: [averyvladislav00@gmail.com](mailto:averyvladislav00@gmail.com)
+* Instagram: https://www.instagram.com/vladislaveveri
+* X: https://x.com/everi_sys
+* Facebook: https://www.facebook.com/profile.php?id=61578091537935
+* Reddit: https://www.reddit.com/user/everi_io
